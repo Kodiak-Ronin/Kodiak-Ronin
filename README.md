@@ -1,6 +1,6 @@
 This is a readme about me.
 That's it.
-Also My Address is Not mine. I put it as a joke about my name.
+Also The Address on my account is Not mine. I put it as a joke about my name.
 I use this account for fun and to learn.
 also my Favorite Phrase is
 "I'm on Edge. Don't bother me right now."
